@@ -1,4 +1,4 @@
-
+updated Script for brainrot evolution offers the most advanced brainrot evolution Script, with invisibility and custom skins. Perfect for dominating
 
 
 
